@@ -1,0 +1,2 @@
+- 👋 Hi, I’m Meryem Kuşoğlu
+- 📫 meryemkusoglu26@gmail.com
